@@ -1,1 +1,1 @@
-### IMB AI Engineer Degree
+### IMB AI Engineer Certificate Courses
